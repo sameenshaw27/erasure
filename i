@@ -1,5 +1,5 @@
 esa magia de la luna,
-que causa desgracia
-y pasión
+que causa Desgracia
+y Pasión
 a un hijo
 hasta hoy oculto.
